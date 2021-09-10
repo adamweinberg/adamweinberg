@@ -5,4 +5,4 @@
 - 💬 Ask me about my experience in Fullstack Academy, a coding bootcamp that I recently completed.
 - 📫 How to reach me: adamcweinberg@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I love to weightlift, play with my dogs, and explore Los Angeles!
+- ⚡ Fun fact: I love to weightlift, spend time with my dogs, and explore Los Angeles!
